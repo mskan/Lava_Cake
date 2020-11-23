@@ -1,4 +1,4 @@
-# Lava_Cake Recipe 
+# Lava_Cake  
 Today, we are going to prepare delicious lava cakes. Although the chocolates cakes are good but lava cakes are some special molten cakes.
 
 A perfect indulgence for every occasion yet very easy for every day dessert! Classic chocolate lava cake made with four simple ingredients. So decadent, you just can't say no!
